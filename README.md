@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @adembilgen
+- 👀 I’m interested in developent
+- 🌱 I’m currently learning live
+- 💞️ I’m looking to collaborate on alls
+- 📫 How to reach me megisty.com
